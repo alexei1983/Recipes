@@ -10,7 +10,7 @@
 - 1 Cup White Rice
 - Kosher salt
 - Freshly-ground black pepper
-- 1 &frac12; Cup Chicken Broth
+- 1 ½ Cup Chicken Broth
 - 2 Medium Carrots, diced
 - 1 Red Bell Pepper, chopped
 - 2 Boneless Chicken Breasts
